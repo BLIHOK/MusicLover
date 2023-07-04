@@ -1,2 +1,2 @@
 ##Music lover disc price
-With ofr without discount
+With or without discount
